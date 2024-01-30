@@ -2,7 +2,6 @@
 - 👀 I’m interested in web3 ecosystem and community building
 - 🌱 I’m currently learning User interface
 - 💞️ I’m looking to collaborate on new projects
-- 📫 naazart.eth@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love tea
 
